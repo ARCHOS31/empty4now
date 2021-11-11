@@ -1,2 +1,2 @@
 # empty4now
-This is Hello World script
+I will drop helpless scripts here 'cause I script kiddie
